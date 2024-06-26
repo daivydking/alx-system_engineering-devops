@@ -10,6 +10,7 @@ For a detailed account of the incident, including the timeline, root cause analy
 
 https://docs.google.com/document/d/1ewk7n2opraOIoDH3hIOsz7m-sUeK9FcmDd8I5lKQJ14/edit?usp=sharing
 
+https://docs.google.com/document/d/1nixPrpE05VSVamSQg6_IXhMpcDJe38L5_yRK-cYoeEo/edit?usp=sharing
 
 
 
